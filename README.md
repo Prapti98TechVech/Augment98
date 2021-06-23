@@ -1,7 +1,7 @@
 # Augment98
 Build your CV in Virtual World
 
-See the images for details
+See the images for details in the below link.
 
 Thank You!
 
